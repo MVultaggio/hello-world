@@ -4,7 +4,7 @@ first repos
 
 Hello,
 
-My name is Michael Vultaggio,  I I like exploring,understanding this world, and experiencing all life hase to offer
+My name is Michael Vultaggio,  I  like exploring,understanding this world, and experiencing all life has to offer.
 
 
 
